@@ -1,0 +1,1 @@
+# Samsung-Smart-Switch-Full-Version
